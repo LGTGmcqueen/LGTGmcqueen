@@ -10,4 +10,4 @@ _📺 Gosto de ver séries de ação_
 ## Entre em contato comigo 🖐️
 pedro.luchetti@escola.pr.gov.br
 
-![](https://tenor.com/pt-BR/view/neymar-with-flower-neymar-neymar-jr-meme-sticker-gif-311876592698188736)
+![](https://media.tenor.com/BFQCG9GI48AAAAAm/neymar-with-flower-neymar.webp)
