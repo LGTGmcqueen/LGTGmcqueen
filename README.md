@@ -1,16 +1,15 @@
-## Hi there 👋
+## _LGTGmcqueen_
+### _Luchetti_
 
-<!--
-**LGTGmcqueen/LGTGmcqueen** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+⚽ Gosto de jogar bola
+🛹 Gosto de andar de skate
+📘 Sou estudante
+🎮 Gosto de jogar videogame
+📺 Gosto de ver séries de ação
 
-Here are some ideas to get you started:
+## Entre em contato comigo 🖐️
+pedro.luchetti@escola.pr.gov.br
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ ![](https://tenor.com/pt-BR/view/mcqueen-gif-4686803180927434131)
+ 
+ ![](https://tenor.com/pt-BR/view/neymar-with-flower-neymar-neymar-jr-meme-sticker-gif-311876592698188736)
