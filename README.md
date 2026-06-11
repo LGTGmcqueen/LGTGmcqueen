@@ -2,9 +2,13 @@
 ### _Luchetti_
 
 _⚽ Gosto de jogar bola_
+
 _🛹 Gosto de andar de skate_
+
 _📘 Sou estudante_
+
 _🎮 Gosto de jogar videogame_
+
 _📺 Gosto de ver séries de ação_
 
 ## Entre em contato comigo 🖐️
