@@ -1,11 +1,11 @@
 ## _LGTGmcqueen_
 ### _Luchetti_
 
-⚽ Gosto de jogar bola
-🛹 Gosto de andar de skate
-📘 Sou estudante
-🎮 Gosto de jogar videogame
-📺 Gosto de ver séries de ação
+_⚽ Gosto de jogar bola_
+_🛹 Gosto de andar de skate_
+_📘 Sou estudante_
+_🎮 Gosto de jogar videogame_
+_📺 Gosto de ver séries de ação_
 
 ## Entre em contato comigo 🖐️
 pedro.luchetti@escola.pr.gov.br
